@@ -14,3 +14,10 @@ Nishant Chahar:- https://docs.google.com/document/d/1TK2_ij3oBDy_cqRuXVf3EEWBrLC
 Lead Coding:- https://docs.google.com/document/d/1dPYIv4zb35SWYG7EY1ipfu5Cj_fpreTfsUVJ3JOGL0w/edit (os)
 
 Striver:- https://docs.google.com/document/d/1sQlRDw6--HwyxeFL7b4kBsOG-Tz7rXMbpWNnfvJErA4/edit  (All in one)
+
+
+# Company Wise Question
+
+## Amazon:- 
+https://docs.google.com/document/d/11gvnsyRL_yU3hKkPESkrxygTIsuQZp3cKugVphbCML4/edit
+
