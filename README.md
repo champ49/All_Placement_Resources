@@ -15,6 +15,8 @@ Lead Coding:- https://docs.google.com/document/d/1dPYIv4zb35SWYG7EY1ipfu5Cj_fpre
 
 Striver:- https://docs.google.com/document/d/1sQlRDw6--HwyxeFL7b4kBsOG-Tz7rXMbpWNnfvJErA4/edit  (All in one)
 
+X:- https://docs.google.com/document/d/1KZ5mxEwyWjnHyh7ZG8IJtalDpqf-zvRIUC0BS5mpZ-o/edit (DBMS)
+
 
 # Company Wise Question
 
